@@ -13,8 +13,7 @@
 
 - 📫 How to reach me **hinakhan142003@gmail.com**
 
-- 📄 My Website [https://hina-khan1.github.io/Hina-Portfolio/](https://hina-khan1.github.io/Hina-Portfolio/)
-
+- 📄 My Linkedin (www.linkedin.com/in/hina-khan5)
 - ⚡ Fun fact **I think I am funny, especially when I make data jokes 😄.**
 
 <h3 align="left">Connect with me:</h3>
